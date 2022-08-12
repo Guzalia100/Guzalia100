@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Guzali100, from Kazakhstan, Nur-Sultan city
+- 👋 Hi, I’m @GuzaliyaHR, from Kazakhstan, Nur-Sultan city
 - 👀 I’m interested in recruitment, looking for great specialists to work in the state and on the project
 - 🌱 I'm currently training in IT-recruiting
 - 💞️ I’m looking to collaborate on further collaboration
